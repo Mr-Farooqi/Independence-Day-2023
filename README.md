@@ -3,6 +3,7 @@
 ![image](https://github.com/Mr-Farooqi/Independence-Day-2023/assets/125676858/da8708bd-0a7f-42cc-b9bd-5a7fa7b17abc)
 
 
-![images](https://github.com/Mr-Farooqi/Independence-Day-2023/assets/125676858/7c72bcc6-fc3d-4d70-8cd3-921facabebfd)
+![tira-removebg-preview](https://github.com/Mr-Farooqi/Independence-Day-2023/assets/125676858/1b1cb187-4b9e-404c-8cd5-e2e729163d6e)
+
 
 Happy Independence-Day -2023
